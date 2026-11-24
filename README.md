@@ -1,2 +1,2 @@
-# Hey I'm Kim 👩🏻‍💻
+# Kim Michelle Lee 👩🏻‍💻
 Freelance AI creative in the UK, originally from Sydney, Australia 🇦🇺. Before this I was in programme management and marketing at Meta, The New York Times and The Wall Street Journal, writing briefs, working with designers and getting work through brand approval. That's why I'm drawn to brand systems and how AI can make that process easier. I make brand imagery and video with AI at [kimmlee.com](https://kimmlee.com), and build skills and tools for my own work plus fun side projects. 
